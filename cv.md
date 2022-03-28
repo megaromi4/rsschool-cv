@@ -37,4 +37,3 @@ I have no programming experience. But I have a higher technical education at BNT
 My English remained at the school level, but communication at a simple level is available to me.
 
 *****
-+++++++
